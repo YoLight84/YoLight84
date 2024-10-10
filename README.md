@@ -2,7 +2,7 @@
 - 👀 I’m interested in music, photography, environmental and innovation topics
 - 🌱 I’m currently learning Web Development
 - 💞️ I’m looking to collaborate on...I'm not sure about that yet😅
-- 📫 How to reach me...yolaluz84@gmail.com
+- 📫 How to reach me... yolaluz84@gmail.com
 - 😄 Pronouns: She
 - ⚡ Fun fact: My favorite hobby is playimg tennis...although I'm not very good at it!😂
 
