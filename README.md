@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @YoLight84
+- 👋 Hi, I’m Yola
 - 👀 I’m interested in music, photography, environmental and innovation topics
 - 🌱 I’m currently learning Web Development
 - 💞️ I’m looking to collaborate on...I'm not sure about that yet😅
